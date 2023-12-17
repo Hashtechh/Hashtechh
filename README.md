@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Hashtechh
-- 👀 I’m interested in ...
+- 👀 I’m interested in Freelancing in various Domains , talk abt technologies , Quantum computers..
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...(Web-D , Android , ,Data-science , technologies)
 - 📫 How to reach me ... parthhb9@gmail.com
